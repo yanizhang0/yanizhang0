@@ -2,7 +2,7 @@
 - 👀 I’m interested in medicine bug
 - 🌱 I’m currently learning R language and bioinformatics 
 - 💞️ I’m looking to collaborate on ??
-- 📫 How to reach me email yanizhang_cmu@163.com; I will check emial yearly 
+- 📫 How to reach me email yanizhang_cmu@163.com; I will check email yearly 
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: ??
 
